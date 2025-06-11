@@ -1,3 +1,5 @@
+Aplikasi ini enak untuk di gunakan para affilator 
+
 ![Screenshot (304)](https://github.com/user-attachments/assets/6c434f42-c530-4aee-945e-d143d9a82767)
 ![Screenshot (303)](https://github.com/user-attachments/assets/4681e3b4-064c-4ca3-886c-75ead521fbd7)
 ![Screenshot (302)](https://github.com/user-attachments/assets/782f58b4-8caf-4e96-a9d2-4de8886d1f0d)
